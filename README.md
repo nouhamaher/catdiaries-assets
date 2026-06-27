@@ -1,0 +1,1 @@
+# catdiaries-assets
